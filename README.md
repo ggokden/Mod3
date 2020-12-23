@@ -1,1 +1,1 @@
-# Mod3
+Yine mi sen! Hala dersini almadın mı? Bırak artık beni!
